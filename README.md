@@ -1,5 +1,5 @@
 # tv123
-<<p>◎   • 视 频： 
+<p>◎   • 视 频： 
 <a href="http://tv2.byinter.net/tv/" target="_blank">网址一</a> 　 
 <a href="http://w2.myredirect.us/tv/" target="_blank">网址二</a> 　 
 <a href="http://16.scr.ns01.biz/" target="_blank">网址三</a></p>
