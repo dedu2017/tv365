@@ -1,7 +1,7 @@
 tv123 (2016/5/25abb)
 <p>◎   • 视 频： 
 <a href="http://a52.crabdance.com/tv/" target="_blank">网址一</a> 　 
-<a href="http://a11.jumpingcrab.com/9018.html" target="_blank">网址二</a> 　 
+<a href="http://a11.jumpingcrab.com/" target="_blank">网址二</a> 　 
 <a href="http://a52.crabdance.com/9449.html" target="_blank">网址三</a></p>
 <p>◎   • 九 评.三 退：  
 <a href="http://a52.crabdance.com/t/" target="_blank">网址一</a> 　 
