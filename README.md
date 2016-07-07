@@ -1,47 +1,47 @@
 tv123 (2016/7/8)网址不定期更新，连不上时，请不同时间再试试。
 <p>◎   • 视 频： 
-<a href="http://ch.spacetechnology.net/tv/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/9018.html" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/9449.html" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/tv/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/9018.html" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/9449.html" target="_blank">网址三</a></p>
 <p>◎   • 九 评.三 退：  
-<a href="http://ch.spacetechnology.net/t/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/v/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/tt/" target="_blank">网址三</a> 　</p>
+<a href="http://23.mtrgood.com/t/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/v/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/tt/" target="_blank">网址三</a> 　</p>
 <p>  • (E2_视频/语音)《九 评》视频/语音: 
-<a href="http://ch.spacetechnology.net/v/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/v/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/v/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/v/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/v/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/v/" target="_blank">网址三</a></p>
 <p>◎   • 三 退 管 道...退 党 网：  
-<a href="http://ch.spacetechnology.net/go/8/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/go/8/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/go/8/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/go/8/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/go/8/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/go/8/" target="_blank">网址三</a></p>
 <p>  • (F1) 三 退 管 道(一)： 
-<a href="http://ch.spacetechnology.net/d/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/d/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/d/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/d/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/d/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/d/" target="_blank">网址三</a></p>
 <p>  • (F2)三 退 管 道(二)： 
-<a href="http://ch.spacetechnology.net/dd/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/dd/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/dd/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/dd/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/dd/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/dd/" target="_blank">网址三</a></p>
 <p>  • 协助三退QQ : 507388781</p>
 <p>◎   • PDF电子书：  
-<a href="http://ch.spacetechnology.net/p/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/p/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/p/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/p/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/p/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/p/" target="_blank">网址三</a></p>
 <p>◎ </span>  •  小 站：  
-<a href="http://ch.spacetechnology.net/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/" target="_blank">网址二</a>   
-<a href="http://ch.spacetechnology.net/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/" target="_blank">网址二</a>   
+<a href="http://23.mtrgood.com/" target="_blank">网址三</a></p>
 <p>◎  • 翻 墙 软 件 ：  
-<a href="http://ch.spacetechnology.net/f/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/ff/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/f/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/f/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/ff/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/f/" target="_blank">网址三</a></p>
 <p>  • 索取翻墙软件QQ：507388781</p>
 <p>◎ </span>  • 每 日 新 闻：  
-<a href="http://ch.spacetechnology.net/day/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/day/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/day/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/day/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/day/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/day/" target="_blank">网址三</a></p>
 <p>◎ </span>  • 短 波 分 享：  
-<a href="http://ch.spacetechnology.net/h/" target="_blank">网址一</a> 　 
-<a href="http://ch.spacetechnology.net/h/" target="_blank">网址二</a> 　 
-<a href="http://ch.spacetechnology.net/h/" target="_blank">网址三</a></p>
+<a href="http://23.mtrgood.com/h/" target="_blank">网址一</a> 　 
+<a href="http://23.mtrgood.com/h/" target="_blank">网址二</a> 　 
+<a href="http://23.mtrgood.com/h/" target="_blank">网址三</a></p>
