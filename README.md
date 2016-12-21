@@ -1,5 +1,5 @@
 2016/12/24m 网址不定期更新，连不上时，请不同时间再试试。
-<p> * 封锁严重！ 请记的收藏此网址！ </p>
+<p> * 封锁严重！ 请记的收藏此网址！！ </p>
 <p>◎   • 视 频： 
 <a href="http://win123.ml/tv/" target="_blank">网址一</a> 　 
 <a href="http://win123.ml/9018.html" target="_blank">网址二</a> 　 
