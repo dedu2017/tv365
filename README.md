@@ -1,4 +1,4 @@
-2017/2/14网址不定期更新，连不上时，请不同时间再试试。
+2017/2/28网址不定期更新，连不上时，请不同时间再试试。
 <p>◎   • 视 频： 
 <a href="http://32.patelmortgage.com/tv/" target="_blank">网址一</a> 　 
 <a href="http://32.patelmortgage.com/9018.html" target="_blank">网址二</a> 　 
