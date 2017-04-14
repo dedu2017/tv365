@@ -38,7 +38,7 @@
 <p>  • (F2)三 退 管 道(二)： 
 <a href="http://52.68.128.69/i/t11.html" target="_blank">网址一</a> 　 
 <a href="http://52.68.128.69/i/t22.html" target="_blank">网址二</a> 　 
-<a href="http://52.68.128.69/i/t33.html/" target="_blank">网址三</a></p>
+<a href="http://52.68.128.69/i/t33.html" target="_blank">网址三</a></p>
 <p>◎   • PDF电子书：  
 <a href="http://52.68.128.69/i/p1.html" target="_blank">网址一</a> 　 
 <a href="http://52.68.128.69/i/p2.html" target="_blank">网址二</a> 　 
