@@ -1,8 +1,8 @@
 <p>https://git.io/tv123<p>2017/5/20 网址不定期更新，连不上时，请不同时间再试试。
-<p>◎   • 视 频 ： 
+<p>◎   • 视 频： 
 <a href="http://b.spagettitoast.com/tv/" target="_blank">网址一</a> 　 
-<a href="http://b.spagettitoast.com/9018.html" target="_blank">网址二</a> 　 
-<a href="http://b.spagettitoast.com/9449.html" target="_blank">网址三</a></p>
+<a href="http://b.spagettitoast.com/" target="_blank">网址二</a> 　 
+<a href="http://b.spagettitoast.com/" target="_blank">网址三</a></p>
 <p>◎ </span>  •  小 站：  
 <a href="http://b.spagettitoast.com/" target="_blank">网址一</a> 　 
 <a href="http://b.spagettitoast.com/s/list.html" target="_blank">网址二</a>   
@@ -25,12 +25,8 @@
 <a href="http://b.spagettitoast.com/tt/" target="_blank">网址三</a> 　</p>
 <p>  • (E2_视频/语音)《九 评》视频/语音: 
 <a href="http://b.spagettitoast.com/7738.html" target="_blank">网址一</a> 　 
-<a href="http://b.spagettitoast.com/7614.html" target="_blank">网址二</a> 　 
-<a href="http://b.spagettitoast.com/7633.html" target="_blank">网址三</a></p>
-<p>◎   • 三 退 管 道...退 党 网：  
-<a href="http://b.spagettitoast.com/go/8/" target="_blank">网址一</a> 　 
-<a href="http://b.spagettitoast.com/go/8/" target="_blank">网址二</a> 　 
-<a href="http://b.spagettitoast.com/go/8/" target="_blank">网址三</a></p>
+<a href="http://b.spagettitoast.com/7738.html" target="_blank">网址二</a> 　 
+<a href="http://b.spagettitoast.com/7738.html" target="_blank">网址三</a></p>
 <p>  • (F1) 三 退 管 道(一)： 
 <a href="http://b.spagettitoast.com/dd/" target="_blank">网址一</a> 　 
 <a href="http://b.spagettitoast.com/dd/" target="_blank">网址二</a> 　 
